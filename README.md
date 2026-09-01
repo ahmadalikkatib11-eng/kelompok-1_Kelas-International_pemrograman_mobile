@@ -1,4 +1,4 @@
 ## Anggota Kelompok
 
 Ahmad Ali Khatib // D121241101 // ahmadalikkatib11-eng
-Yitro Ramba Bandaso // 
+Yitro Ramba Bandaso // D121241010 // yitrorambab-netizen
