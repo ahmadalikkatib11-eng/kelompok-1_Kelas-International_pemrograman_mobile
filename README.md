@@ -1,1 +1,4 @@
-# kelompok-1_Kelas-International_pemrograman_mobile
+## Anggota Kelompok
+
+Ahmad Ali Khatib // D121241101 // ahmadalikkatib11-eng
+Yitro Ramba Bandaso // 
